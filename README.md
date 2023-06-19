@@ -1,0 +1,1 @@
+# Proyecto-UTABA   hola rossymar  el proyecto  optine la calificacion de 7 hay que seguir practindo , el oden de los archivos yo ya te lo habia ordenado  cuando tfrabaje siempre tabaja en subcarpetas recorda siempre repasar los contenidos y practicar que es algo muy importante . saludos gabi
